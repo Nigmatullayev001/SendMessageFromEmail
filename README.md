@@ -63,7 +63,7 @@ Agar Gmail-dan foydalansangiz:
 
 ## 📬 Muallif
 
-Loyiha muallifi: **Sizning ismingiz**
+Loyiha muallifi: **Nigmatullayev001**
 
 ---
 
